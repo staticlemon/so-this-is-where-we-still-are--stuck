@@ -15,3 +15,5 @@
 <!--https://www.tiktok.com/t/ZP86bJepN/--> and this especially this, this is so isolating ugh BUT it is interesting ... so there's that **shrug**
 
 <!--https://www.tiktok.com/t/ZP86b9EAA/-->
+
+<!--https://www.tiktok.com/@yevit/video/7504794067608423710  im so busy this weekend, im not updating this until prolly monday/tuesday, just tell me what happens next ok bye --> 
